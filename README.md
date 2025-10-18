@@ -15,4 +15,4 @@ UX/UI para entregar experiências que realmente importam
 
 🤝 Acredito em uma liderança próxima, empática e orientada à evolução contínua. Aqui no GitHub, compartilho não só projetos, mas também aprendizados, experimentos e minha evolução como profissional híbrida: PO + Dev em construção.
 
-Vamos criar o futuro juntos? 🌐✨ minha descrição é essa
+Vamos criar o futuro juntos? 🌐✨💫
