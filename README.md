@@ -1,4 +1,3 @@
-##Olá sou Steffany Marques de Sousa
 
 🚀 Product Owner em Ação | Apaixonada por Criar, Conectar e Codar
 
